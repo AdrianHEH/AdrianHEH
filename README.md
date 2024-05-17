@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on **Nothing**<br>👯 I’m looking to collaborate on **having a gf**<br>🤝 I’m looking for help with **my gf**<br>🌱 I’m currently learning **telecom, python**<br>💬 Ask me about **your gf**<br>⚡ Fun fact **stupid guy**
+🔭 I’m currently working on **Nothing**<br>👯 I’m looking to collaborate on **Nothing**<br>🤝 I’m looking for help with **Nothing**<br>🌱 I’m currently learning **Nothing**<br>💬 Ask me about **Nothing**<br>⚡ Fun fact **Nothing**
 
 
 ## 🌐 Socials:
